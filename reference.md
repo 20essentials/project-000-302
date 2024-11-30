@@ -1,0 +1,6 @@
+- **Reference ⬇️**
+  - [Inspiration Titular De Periodico Manzdev](https://youtu.be/nIWdkXBwWLI?si=FKzSB3s9MkQqI_Gb)
+  - [Lisa Img](https://fifthsun.com/products/the-simpsons-mens-cool-lisa-t-shirt)
+  - [Barney Img](https://i.ytimg.com/vi/HEXlmrOlIAs/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBxXQsfy0pw22AOPAIWCaXCH-3Gxw)
+  - [Iceland Winterstorm](https://www.dafont.com/iceland-winterstorm.font)
+  - [Pattern Background Svg](https://loading.io/pattern/)
